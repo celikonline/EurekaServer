@@ -1,1 +1,1 @@
-http://celikozgur.net/?p=112
+http://celikozgur.net/netflix-eureka-server-client/
